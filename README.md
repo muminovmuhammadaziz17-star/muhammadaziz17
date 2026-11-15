@@ -16,4 +16,4 @@ Men Muhammadazizman.
 ## Maqsadim
 Professional dasturchi bo‘lish.
 
-# Men yangi loyihalar yaratishni o‘rganyapman.
+# Men yangi loyihalar yaratishni o‘rganyapman.# muhammadaziz17
