@@ -1,6 +1,6 @@
 # Salom! 👋
 
-Men Muhammadazizman.
+Men Muminov Muhammadazizman.
 
 ## O‘rganayotgan texnologiyalarim
 - HTML
